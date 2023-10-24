@@ -1,3 +1,4 @@
+Meu nome é nicoly mas me chame de nick ou nicks como alguns me chamam
 Eu sou uma aluna da Escola Civico Militar Helena Viana Sundin 
 Eu gosto das matérias de educaçâo física e de ciência.
 gosto de ler manga e assistir anime
