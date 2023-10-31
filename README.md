@@ -8,6 +8,6 @@
 
 - gosto de sair e de viajar , gosto de assistir a nanda e o taryn no tiktok
 
-- e eu gosto de cozinhar e amo dormi
+- e eu gosto de cozinhar e amooo dormi
 
 ![](https://media.tenor.com/xWxvBafdLtoAAAAM/fushi-laugh-fushi.gif)
