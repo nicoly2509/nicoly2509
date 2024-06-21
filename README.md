@@ -6,8 +6,8 @@
 
 - gosto de ler manga e assistir anime
 
-- gosto de sair e de viajar , gosto de assistir a nanda e o taryn no tiktok
+- gosto de sair e de viajar , gosto de assistir a nanda no tiktok
 
-- e eu gosto de cozinhar e amooo dormi
+- estou estudando para ter um futuro melhor
 
 ![](https://media.tenor.com/xWxvBafdLtoAAAAM/fushi-laugh-fushi.gif)
